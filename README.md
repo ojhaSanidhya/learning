@@ -1,2 +1,2 @@
 # learning
-i want to learn so much things 
+i want to learn so many things 
